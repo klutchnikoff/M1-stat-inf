@@ -2,4 +2,8 @@
 
 ## Informations utiles
 
-Le premier CC aura lieu
+Premier contrôle continu :
+
+* vencredi 21 octobre à 8h15 ;
+* durée 1h30 ;
+* aucun document autorisé.
